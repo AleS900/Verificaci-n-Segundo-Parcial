@@ -1,1 +1,1 @@
-# Verificaci-n-Segundo-Parcial
+# Verificación-Segundo-Parcial
